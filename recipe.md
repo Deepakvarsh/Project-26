@@ -1,0 +1,1 @@
+Take a circle plain bread and apply ketchup on top of it, after which we add cheese and vegetables on top of it. After all the steps we finally bake the pizza at temperature of 40 degrees celsius
